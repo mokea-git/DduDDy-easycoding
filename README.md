@@ -55,8 +55,8 @@
 
 궁금한 점이나 문의 사항이 있다면 언제든지 연락 주세요!
 
-- 📧 이메일: **your-email@example.com**
-- 💬 디스코드: **yourdiscord#1234**
+- 📧 이메일: **easycoding2967@gmail.com**
+- 💬 디스코드: **사용자명: dduddy_**
 - 📺 유튜브: [모크어 채널 바로가기](https://www.youtube.com/@%EB%AA%A8%ED%81%AC%EC%96%B4)
 - 🛠️ 커뮤니티 채널(예정): 디스코드 서버 오픈 준비 중입니다!
 
